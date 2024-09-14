@@ -1,3 +1,3 @@
-# HayataSama Wallpapers
+# Wallpapers
 
-Here I've gathered some of my favorite wallpapers.
+Different wallpapers that I've found around the web.
